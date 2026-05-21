@@ -1,2 +1,0 @@
-# Lotto-plus
-páginas lotto
